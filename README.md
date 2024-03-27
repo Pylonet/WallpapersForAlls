@@ -34,3 +34,8 @@
 ![](Wallpapers/undefined - Imgur.png)
 ![](Wallpapers/w3.png)
 ![](Wallpapers/y.png)
+![](Wallpapers/671025.png)
+![](Wallpapers/1281551.jpg)
+![](Wallpapers/1057022.png)
+![](Wallpapers/432098.jpg)
+![](Wallpapers/1038258.jpg)
