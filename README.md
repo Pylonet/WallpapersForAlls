@@ -1,1 +1,2 @@
-![Wallpapers/1.jpg]()
+![](Wallpapers/1.jpg)
+![]()
