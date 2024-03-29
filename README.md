@@ -57,7 +57,6 @@
 ![](Wallpapers/Wallpaper-transformed.jpeg)
 ![](Wallpapers/1._Windows_XP.jpg)
 ![](Wallpapers/IMG_3019.jpeg)
-![](Wallpapers/IMG_9165.jpg)
 
 
 
