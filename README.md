@@ -52,6 +52,13 @@
 ![](Wallpapers/waves.jpg)
 ![](Wallpapers/rick.jpg)
 ![](Wallpapers/amilia.jpg)
+![](Wallpapers/Pamela.png)
+![](Wallpapers/pantalla.png)
+![](Wallpapers/wallpaperbetter.com_2560x1440_1.jpg)
+![](Wallpapers/Wallpaper-transformed.jpeg)
+![](Wallpapers/1._Windows_XP.jpg)
+![](Wallpapers/IMG_3019.jpeg)
+![](Wallpapers/IMG_9165.jpg)
 
 
 
