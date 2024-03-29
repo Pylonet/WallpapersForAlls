@@ -47,6 +47,10 @@
 ![](Wallpapers/2.png)
 ![](Wallpapers/4.jpg)
 ![](Wallpapers/6.jpg)
+![](Wallpapers/tokyo-night09.png)
+![](Wallpapers/tokyo-night30.png)
+![](Wallpapers/waves.jpg)
+![](Wallpapers/rick.jpg)
 
 
 
