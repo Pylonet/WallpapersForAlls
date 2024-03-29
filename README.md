@@ -41,4 +41,13 @@
 ![](Wallpapers/1038258.jpg)
 ![](Wallpapers/1038258.jpg)
 ![](Wallpapers/4.jpeg)
+![](Wallpapers/wallhaven-3lwq86.jpg)
+![](Wallpapers/ayu-dark-navi.png)
+![](Wallpapers/8.png)
+![](Wallpapers/2.png)
+![](Wallpapers/4.jpg)
+![](Wallpapers/6.jpg)
+
+
+
 
