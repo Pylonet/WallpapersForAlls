@@ -31,7 +31,6 @@
 ![](Wallpapers/output-1659944008.png)
 ![](Wallpapers/sebastian-svenson-d2w-_1LJioQ-unsplash.jpg)
 ![](Wallpapers/solar-system-planet-minimalist-uhdpaper.com-hd-8.3214.jpg)
-![](Wallpapers/undefined - Imgur.png)
 ![](Wallpapers/w3.png)
 ![](Wallpapers/y.png)
 ![](Wallpapers/671025.png)
