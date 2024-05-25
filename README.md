@@ -60,7 +60,7 @@
 ![](Wallpapers/4k-keyboard.jpg)
 ![](Wallpapers/0014.png)
 ![](Wallpapers/3squares.png)
-![](Wallpapers/undefined - Imgur.png)
+![]("Wallpapers/undefined - Imgur.png")
 ![](Wallpapers/wallpaper.png)
 ![](Wallpapers/taza.png)
 ![](Wallpapers/sushi_dark.png)
